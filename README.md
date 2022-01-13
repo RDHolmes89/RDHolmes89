@@ -10,7 +10,7 @@ My goal is to hold a safe space for people to feel comfortable and collaborate. 
 ---
 | Contact | Email |
 | :---: |:---:|
-| R.D. Holmes | rochelleholmes89@gmail.com |
+| Rochelle D. Holmes | rochelleholmes89@gmail.com |
 
 
 
