@@ -2,7 +2,7 @@
 
 ![Ocean Waves Abstract Painting](waves.jpg)
 
-<div align="center"><h3>:fleur_de_lis:I am an artist breaking their way into the wonderful wild world of coding!:fleur_de_lis:</h3></div>
+<div align="center"><h3>:fleur_de_lis:I am an artist enjoying the wonderful wild world of coding!:fleur_de_lis:</h3></div>
 
 ---
 My goal is to hold a safe space for people to feel comfortable and collaborate. While enriching the lives of diverse audiences and bringing them together in the process. I am **passionate** about bringing all walks of life together in the light of commonality.
